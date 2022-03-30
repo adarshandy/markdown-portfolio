@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+Friends trip
+Hangout
+Food
+Drinks
+Movies
+College
+Time pass
+Shopping
