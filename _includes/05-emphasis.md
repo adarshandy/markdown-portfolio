@@ -1,0 +1,1 @@
+One of my favourite time of my college is the event time. The event name is **AAGAMA**. It is a *college annual event*, which is condcted every year. It replicates the name of our institution as **Anurag University**.
